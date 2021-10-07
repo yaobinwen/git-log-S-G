@@ -3,7 +3,6 @@
 Cherry Springs State Park
 Keystone State Park
 Kinzua Bridge State Park
-Lake Erie State Park
 Leonard Harrison State Park
 Linn Run State Park
 McConnells Mill State Park
